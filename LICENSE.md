@@ -1,4 +1,4 @@
-
+Get ahead in bee swarm simulator with new bee swarm simulator Script, featuring auto-collect and anti-ban. Download now to dominate every match with ease and confidence, thanks to
 
 
 
